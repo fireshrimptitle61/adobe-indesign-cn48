@@ -1,4 +1,4 @@
-# 
+# new Affinity Photo for PC scripts is the best Affinity Photo for PC scripts with character-styles and vector-drawing. Safe, reliable, and optimized for maximum performance.
 
 
 
